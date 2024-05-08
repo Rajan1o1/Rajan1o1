@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rajan1o1
+- 👋 Hi, I’m Rajan1o1.
 
 
 
